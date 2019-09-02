@@ -56,7 +56,8 @@ Contact
 
 Author: Gerhard Kurz
 
-Mail: gerhard.kurz (at) kit (dot) edu
+Mail: kurz.gerhard (at) gmail (dot) com
 
-Web: [http://isas.uka.de/User:Kurz](http://isas.uka.de/User:Kurz)
+Web: [http://www.gerhardkurz.de](http://www.gerhardkurz.de)
+
 
